@@ -1,1 +1,1 @@
-![irid-film-club-github-social-preview-2](https://github.com/iridfilmclub/.github/assets/79719348/abe467dc-a5ef-474f-ba3d-4417be346262)
+![irid-film-club-github-social-preview-3](https://github.com/iridfilmclub/.github/assets/79719348/e7d61a10-fb67-4918-91b5-bd5bb988cf69)
